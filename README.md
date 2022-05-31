@@ -1,4 +1,4 @@
-# bocetos
+# Bocetos
 
 #### TEMA DEL GRUPO: LA FIESTA DE LA TIRANA
 
@@ -9,3 +9,7 @@ La fiesta de la tirana es con diferencia el carnal nacional que alberga más bai
 ## Las danzas de la Tirana
 
 Una característica que diferencia a La Tirana de otras celebraciones es la gran variedad de compañías o hermandades, las cuales se dividen en *bailes de paso* y *bailes de salto*.
+
+En los *bailes de paso* se encuentran los bailes tradicionales de *lacas*, *cullacas*, *pastoras*, *llameros*, *morenos* y *chunchos*. Todos ellos bailan frente a la imagen de la Virgen, en parejas. 
+
+El baile consiste en avanzar rítmicamente, de a dos, con pasos cortos. Las parejas se separan dando vueltas por fuera de las columnas danzantes, para dar sitio a otra. El caporal se sitúa al centro de la columna. Los músicos van detrás del baile o a su lado. Al frente de cada columna se encuentra un guía, que abre el camino e inicia el canto. 
