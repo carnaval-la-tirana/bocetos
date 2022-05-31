@@ -5,3 +5,7 @@
 El Carnaval de la Tirana o la fiesta de La tirana es el carnaval mas importante de Chile, su origen se remonta a la llegada de Pedro de Valdivia al territorio ocupado por los Incas, Incas que apresó e hizo esclavos, uno de estos un sacerdote llamado Huillac Huma logro escapar y se refugió junto con otros Incas en los bosques del tamarugal, donde se acento como una resistencia indigena frente al poderío español, donde ella adopta el nombre de la Tirana por sus enemigos. por esas cosas del destino conoció a un portugués misionero llamado don Vasco de Almeyda de quien se enamoró perdidamente y decidió dejar su religión para pasar al cristianismo y así acompañar a su amor. Justo cuando ella iba a ser bautizada, es acribillada por flechas dando muerte a ambos. Un dia entre 1540 y 1550 fray Antonio Rondón evangelizador de Tarapacá  dio con el bosque el tamarugal y ara su sorpresa vislumbra en él una cruz cristiana y decide que en ese lugar se edificara una iglesia.
 
 La fiesta de la tirana es con diferencia el carnal nacional que alberga más bailarines que otras celebraciones nacionales y también es la que conserva distintas tradiciones y bailes, ya que año tras año se van agregando más.  
+
+## Las danzas de la Tirana
+
+Una característica que diferencia a La Tirana de otras celebraciones es la gran variedad de compañías o hermandades, las cuales se dividen en *bailes de paso* y *bailes de salto*.
