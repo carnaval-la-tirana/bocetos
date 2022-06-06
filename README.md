@@ -6,7 +6,7 @@ El Carnaval de la Tirana o la fiesta de La tirana es el carnaval mas importante 
 
 La fiesta de la tirana es con diferencia el carnal nacional que alberga más bailarines que otras celebraciones nacionales y también es la que conserva distintas tradiciones y bailes, ya que año tras año se van agregando más.  
 
-Orden según años:
+Origen e historia, orden según años:
 
 1535: 
 En los albores de la conquista de Chile, cuando el capitán don Diego de Almagro, ingresó al norte del país con quinientos cincuenta españoles y un séquito de 10 mil indios. Entre éstos, dos de gran relevancia: Paulino Tupac, príncipe de la familia imperial de los Incas, y Huillac Huma, último sumo sacerdote del desaparecido “culto al Sol”, junto a su hija, la princesa Ñusta Huillac.
