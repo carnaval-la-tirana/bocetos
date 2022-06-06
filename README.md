@@ -6,6 +6,26 @@ El Carnaval de la Tirana o la fiesta de La tirana es el carnaval mas importante 
 
 La fiesta de la tirana es con diferencia el carnal nacional que alberga más bailarines que otras celebraciones nacionales y también es la que conserva distintas tradiciones y bailes, ya que año tras año se van agregando más.  
 
+Orden según años:
+
+1535: 
+En los albores de la conquista de Chile, cuando el capitán don Diego de Almagro, ingresó al norte del país con quinientos cincuenta españoles y un séquito de 10 mil indios. Entre éstos, dos de gran relevancia: Paulino Tupac, príncipe de la familia imperial de los Incas, y Huillac Huma, último sumo sacerdote del desaparecido “culto al Sol”, junto a su hija, la princesa Ñusta Huillac.
+
+Huillac Huma, logro escapar y se refugió junto con otros Incas en los bosques del tamarugal, donde se formó una resistencia indigena frente al poderío español, resistencia que los españoles comenzarían a llamar "La Tirana". 
+
+1540- 1550: 
+fray Antonio Rondón evangelizador de Tarapacá dio con el bosque el tamarugal y para su sorpresa vislumbra en él una cruz cristiana y decide que en ese lugar se edificara una iglesia. (Uribe, 1976)
+
+Durante un par de siglos esta pequeña ermita se mantuvo como centro de peregrinación familiar para los habitantes de la zona, que manifestaban con cantos y bailes populares su veneración por la imagen de la Virgen.
+1830: 
+La región comenzó a experimentar una gran transformación debida al auge del salitre. Materia prima esencial para muchas manufacturas de la época, generó la fundación de varios centros de explotación y procesamiento, conocidos como “oficinas salitreras”, que contrataban abundante mano de obra en el sur del país. Muy pronto estos obreros, en una tierra lejana y agreste, se habitúan a visitar la ermita de Nuestra Señora del Carmen.
+
+1886:
+Con el tiempo resolvieron iniciar una campaña de recolección de materiales para construir una iglesia, la que fue inaugurada el 16 de julio de 1886.
+
+1930: 
+Llegó el ocaso de la explotación salitrera y las oficinas fueron cerradas paulatianmente. Pero, aunque obligados a emigrar a las grandes ciudades del norte y centro de Chile, los pampinos mantuvieron la hermosa tradición de peregrinar una vez al año a La Tirana, y hoy la fiesta se transformó en un legado de identidad chilena de la pampa.
+
 ## Las danzas de la Tirana
 
 Una característica que diferencia a La Tirana de otras celebraciones es la gran variedad de compañías o hermandades, las cuales se dividen en *bailes de paso* y *bailes de salto*.
