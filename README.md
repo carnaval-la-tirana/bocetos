@@ -34,7 +34,7 @@ En los *bailes de paso* se encuentran los bailes tradicionales de *lacas*, *cull
 
 El baile consiste en avanzar rítmicamente, de a dos, con pasos cortos. Las parejas se separan dando vueltas por fuera de las columnas danzantes, para dar sitio a otra. El caporal se sitúa al centro de la columna. Los músicos van detrás del baile o a su lado. Al frente de cada columna se encuentra un guía, que abre el camino e inicia el canto. 
 
-La peregrinación
+###La peregrinación
 
 La peregrinación de la virgen de la tirana es además de ser la mas importante dentro del norte grande es una con una duración prolongada, en aulgunos lugares toman que esta parte el dia 10 de julio hasta el 19 de julio donde secan los bailes y por ende la celebracion. pero la peregrinación en si dura desde el dia 12 de julio donde inicia esta a las 14:00 hrs y culmina a las 24:00 hrs del dia 16 de Julio. las actividades durante los días funcionan asi: 
 
